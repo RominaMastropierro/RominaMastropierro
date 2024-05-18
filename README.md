@@ -15,7 +15,7 @@ challenges where I can apply my technical skills and passion for finding practic
 
 ✉️ &nbsp;You can email me at romina.mastro@gmail.com! I'll try to get back to you as soon as possible.
 
-📄 &nbsp;Please have a look at my [Résumé]( https://www.linkedin.com/in/rominamastropierro) for more details about me. I'm open to feedback and suggestions!
+📄 &nbsp;Please have a look at my [Résumé]( https://www.canva.com/design/DAGEuyTLkiY/bXLzOW_FoMrN4CjgXua_fw/view?utm_content=DAGEuyTLkiY&utm_campaign=designshare&utm_medium=link&utm_source=viewer) for more details about me. I'm open to feedback and suggestions!
 
 
 
